@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-HESJ050825MMCRNQA4
+HESJ050825MMCRNQA4
